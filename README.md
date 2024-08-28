@@ -11,4 +11,4 @@
 
 ## LINK DOWNLOAD
 
-[Download Here](https://www.mediafire.com/file/j10doc64aoj4zo6/CNIK.rar/file)
+[Download Here](https://www.mediafire.com/file/r9dgp017czrd5sc/CNIK.zip/file)
